@@ -1,4 +1,4 @@
 # cheesecake
 Repo for cheese cake recipe
-## below it will be a recipe for my cheesecake stay tuned
+## Below there will be a recipe for my cheesecake soon. Stay tuned!
 Step 1:
