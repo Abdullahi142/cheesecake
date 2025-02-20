@@ -29,4 +29,5 @@
 ## FOLLOW OUR INSTAGRAM 
 
 This recipe is NOT gluten-free!!!!
+Contains allergens: Eggs, milk, wheat, soy 
 
